@@ -5,6 +5,8 @@ tools were applied to study the significance. The findings highlighted the bitte
 initiatives like Sarva Shiksha Abhiyan, Beti Padhao Beti Bachao and Swachh Bharat Abhiyan and proved the fact that
 women are the worst sufferers when it comes to lack of sanitation facility and lack access to hygienic sanitary materials in
 India
+
+
  46% of girls said menstruation interferes with their attendance. 72% of girls suffered from dysmenorrhea. Lack of water
 facility, inadequate sanitation facility as well as menstrual problems cause absenteeism. Privates schools had a better
 sanitation facility as compared to government schools. study reveals that menstrual hygiene is not satisfactory among large
